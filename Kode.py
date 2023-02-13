@@ -1,3 +1,12 @@
-# Hey
+# Starten på koden
 
-# HEY HEYT HET
+
+
+
+
+
+
+
+
+
+
